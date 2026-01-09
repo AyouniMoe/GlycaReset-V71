@@ -1,0 +1,1 @@
+An app for people who have T2D and want to reverse it through lifestyle and diet changes. Its also an app for people who have successfully reversed T2D and want a tool to stay in remission, and who are open on sharing their lifestyle and diet changes which allowed them to gain remission and who would be open to mentoring those who are in the reversal journey. 
